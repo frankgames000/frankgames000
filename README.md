@@ -1,0 +1,5 @@
+- 👋 oi meu nome é frank vito
+- 👀 eu tenho interessante na gastronomia
+- 🌱 estou interessada em aprender a programar diferentes linguagens de programaçao 
+- 💞️ aprendendo a VScode!!!
+- 📫 my email contact is franksales000@gmail.com
